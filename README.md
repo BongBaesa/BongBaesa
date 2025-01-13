@@ -2,10 +2,10 @@ Hi! I’m @BongBaesa!
 
 📌 Recent grad, continuously learning tech...
 
-📌 Looking to guidance to improve!! ⚙
+📌 Seeking guru to make me improve!! ⚙
 
 📧 Feel free to reach out to me at baesabong@gmail.com or DM me on **Messenger** on m.me/bong.baesa. 
-I'd love to connect and learn together!
+
 
 
 (I bothered to write this 😆). 
