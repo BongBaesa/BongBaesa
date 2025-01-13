@@ -8,7 +8,7 @@ Hi! I’m @BongBaesa!
 
 
 
-(I bothered to write this 😆). 
+(I bothered to write this 💀). 
 <!---
 BongBaesa/BongBaesa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
