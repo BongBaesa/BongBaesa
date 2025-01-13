@@ -1,4 +1,4 @@
-Hi! I’m @BongBaesa, 
+Hi! I’m @BongBaesa!
 
 📌 Recent grad, continuously learning tech...
 
@@ -8,7 +8,7 @@ Hi! I’m @BongBaesa,
 I'd love to connect and learn together!
 
 
-(P.S struggling to write this README haha). 
+(I bothered to write this 😆). 
 <!---
 BongBaesa/BongBaesa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
