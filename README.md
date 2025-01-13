@@ -6,8 +6,6 @@ Hi! I’m @BongBaesa!
 
 📧 Feel free to reach out to me at baesabong@gmail.com or DM me on **Messenger** on m.me/bong.baesa. 
 
-
-
 (I bothered to write this 💀). 
 <!---
 BongBaesa/BongBaesa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
